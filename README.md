@@ -4,4 +4,4 @@ SISFO untuk kebutuhan keperluan sekolah pesantren
 
 NB.
 
-Nantikan rilisnya pada 30 Juli 2026 ini.
+Nantikan rilisnya pada 30 September 2026 ini.
